@@ -13,7 +13,7 @@
 
  #####  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=100&size=14&duration=2000&pause=1000&color=40304D&center=true&vCenter=true&width=325&height=40&lines=''+Oh+my+sweet+sweet+Wemmbu+.+'';''+.+.+.+why+did+you+betray+me+%3F+'';''+Because+%2C+you+are+so+unbelievably+.+.'';''+Weak+.+'')](https://git.io/typing-svg) 
   
-##### ![example Gif](https://s4.ezgif.com/tmp/ezgif-4e48f9c668e6474a.png)
+##### ![example Gif](https://file.garden/ae0A3uTwQwuGSRwU/ezgif-6dcdbcfbc7e694e9.png)
  
 ‎  ‎ ‎ ‎‎ ‎ ‎ 
 ##### [rentry](https://rentry.co/hypnomics)   ‎  ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎ ‎   ‎‎‎ [atabook](https://kanata.atabook.org/) ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ [match](https://rentry.co/phaisunaxa) 
