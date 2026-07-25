@@ -5,7 +5,7 @@
 
  ![](https://komarev.com/ghpvc/?username=raivings&base=8943254&label=the+brightest+of+them+all&style=flat-square&color=432740)
 
-##### ‎‎ ‎ ‎[rentry](https://rentry.co/hypnomics) ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ${\color{#776286}⟡}$‎‎‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ [atabook](https://kanata.atabook.org/) ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ${\color{#938d86}⟡}$‎‎‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ [match](https://rentry.co/phaisunaxa) 
+##### ‎‎ ‎ ‎[rentry](https://rentry.co/hypnomics) ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ${\color{#776286}⟡}$‎‎‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ [新book](https://kanata.atabook.org/) ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ${\color{#938d86}⟡}$‎‎‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ [match](https://rentry.co/phaisunaxa) 
 
 
 ##### ${\color{#381e3f}Your}$  ${\color{#4a2d3f}biggest}$  ${\color{#563947}mistake}$ ${\color{#5b3e5b}will}$ ${\color{#62456f}be}$ ${\color{#776286}keeping}$ ${\color{#806e86}me}$ ${\color{#938d86}alive}$ 
