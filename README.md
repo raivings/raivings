@@ -1,24 +1,23 @@
-<img src="https://file.garden/ae0A3uTwQwuGSRwU/ezgif-7292ba043303ed1b%20(1).png" align="left">
+<img src="https://file.garden/ae0A3uTwQwuGSRwU/Untitled344_20260810203902.png" align="left" width="390">
 
   
  
- ![](https://komarev.com/ghpvc/?username=raivings&base=8943254&label=‎wubes&style=flat-square&color=432740)
+ ![](https://komarev.com/ghpvc/?username=raivings&base=8943254&label=‎angels&style=square&color=2d1a03)
 ‎ ‎ ‎
 ‎ ‎ ‎
-##### ${\color{#381e3f}Your}$  ${\color{#4a2d3f}biggest}$  ${\color{#563947}mistake}$ ${\color{#5b3e5b}will}$ ${\color{#62456f}be}$ ${\color{#776286}keeping}$ ${\color{#806e86}me}$ ${\color{#938d86}alive}$ 
+##### ${\color{#422f18}I}$  ${\color{#5c513b}dont}$  ${\color{#807d66}interact}$ ${\color{#908786}with}$ ${\color{#a4afa8}fandoms}$ ${\color{#908786}so}$ ${\color{#807d66}iwc}$ ${\color{#5c513b}thanks}$ 
 
+
+
+
+‎   　　　　　　　 
+##### ‎[rentry](https://rentry.co/hypnomics) ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ [新book](https://kanata.atabook.org/) ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ [match I](https://rentry.co/phaisunaxa)  [II](https://rentry.co/squid-fies)
 
 
 
 ‎‎ 
-##### ‎[rentry](https://rentry.co/hypnomics) ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ${\color{#776286}⟡}$‎‎‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ [新book](https://kanata.atabook.org/) ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ${\color{#938d86}⟡}$‎‎‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ [match I](https://rentry.co/phaisunaxa)  [II](https://rentry.co/squid-fies)
-
-
-
-
-‎‎ 
-##### ${\color{#381e3f}Spread}$ ${\color{#4a2d3f}your}$ ${\color{#563947}wings}$ ${\color{#5b3e5b}and}$ ${\color{#62456f}go}$ ${\color{#776286}up}$ ${\color{#806e86}high}$
-##### ${\color{#4a2d3f}to}$ ${\color{#563947}the}$ ${\color{#5b3e5b}heavens}$ ${\color{#62456f}shall}$ ${\color{#776286}you}$ ${\color{#806e86}fly}$
+##### ${\color{#422f18}Do}$ ${\color{#5c513b}not}$ ${\color{#807d66}ship}$ ${\color{#908786}interact}$ ${\color{#a4afa8}with}$ ${\color{#908786}me}$ ${\color{#807d66}unless}$
+##### ${\color{#5c513b}i}$ ${\color{#807d66}know}$ ${\color{#908786}you}$ ${\color{#a4afa8}or}$ ${\color{#908786}comfortable}$ 
 
 
  
