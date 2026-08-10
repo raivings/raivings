@@ -6,7 +6,7 @@
 ‎ ‎ ‎
 ‎ ‎ ‎
 ##### ${\color{#422f18}I}$  ${\color{#5c513b}dont}$  ${\color{#807d66}interact}$ ${\color{#908786}with}$ ${\color{#a4afa8}fandoms}$ ${\color{#908786}so}$ ${\color{#807d66}iwc}$ ${\color{#5c513b}thanks}$ 
-
+##### ${\color{#422f18}Im}$  ${\color{#5c513b}very}$  ${\color{#807d66}shy}$ ${\color{#908786}and}$ ${\color{#a4afa8}awkward}$ ${\color{#908786}with}$ ${\color{#807d66}other}$ ${\color{#5c513b}people}$
 
 
 
